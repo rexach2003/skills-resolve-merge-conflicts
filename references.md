@@ -1,0 +1,1 @@
+who needs references? i've never had a job before in my life. i've never been employed and i never will. you cannot put a collar around my neck, white or otherwise. i will not be contained. i am running away to the swiss alps. 
